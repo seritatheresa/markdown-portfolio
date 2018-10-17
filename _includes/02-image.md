@@ -1,1 +1,1 @@
-! [drogon] (https://thumbs.gfycat.com/NarrowInnocentIndianpalmsquirrel-size_restricted.gif)
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
